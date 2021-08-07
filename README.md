@@ -5,6 +5,9 @@ version with their old drivers
 imagine inspect elementing my messages LOOOOOL
 i also dont talk like that XDDDDDDDDDDD
 
+see not that hard to do
+<img src="https://cdn.discordapp.com/attachments/873318535567405136/873645430741827624/unknown.png"/>
+
 
 works on all winvers
 HOW TO USE: open Injector.exe in lobby
